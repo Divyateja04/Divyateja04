@@ -11,7 +11,7 @@
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/divya-teja-komiri-b43064296/](https://www.linkedin.com/in/divya-teja-komiri-b43064296/)
 
-- 💻 **💻 Let's connect and explore the endless possibilities together !.**
+- 💻 **Let's connect and explore the endless possibilities together !.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
